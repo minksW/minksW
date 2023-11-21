@@ -1,2 +1,2 @@
 yo? thanks for coming by to my github profile and or/ repo. (i dont mean it)
-visit my site at (https://diorisdash.us)
+i will post software and other random stuff
